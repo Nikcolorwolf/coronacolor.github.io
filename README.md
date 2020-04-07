@@ -1,1 +1,0 @@
-# coronacolor.github.io
